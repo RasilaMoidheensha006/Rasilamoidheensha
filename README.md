@@ -29,6 +29,8 @@ I am passionate about Data Analysis ,Preprocessing , Prediction . I love diving 
 
 Linkedin : https://www.linkedin.com/in/rasila-moidheen-sha-27827521a
 
+Personal Portfolio : https://www.datascienceportfol.io/rasilamoidheensha
+
 
 
 
